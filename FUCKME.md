@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @pieprzydev
+- 👀 I’m interested in squirting, programming 4fun
+- 🌱 I’m currently learning NONE
+- 💞️ I’m looking to collaborate on sexcam
+- 📫 How to reach me: @cipeczke, @lysaszprotka on discord
+- 😄 Pronouns: he/him 
+- ⚡ Fun fact: i bully msp streamers
