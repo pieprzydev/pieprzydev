@@ -1,3 +1,3 @@
 <p align="center">
-  <img src="1" width="200" />
+  <img src="http://mspassetscustom.ct8.pl/cos.jpg" />
 </p>
