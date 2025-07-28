@@ -1,3 +1,3 @@
 <p align="center">
-  <img src="http://mspassetscustom.ct8.pl/cos.jpg" />
+  <img src="https://github.com/tandpfun/skill-icons/raw/main/icons/Python-Dark.svg" />
 </p>
